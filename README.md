@@ -1,3 +1,5 @@
+I really hope that Canadian organizations are reading the following: 
+
 (Le français suit)
 
 # Open First Whitepaper (DRAFT)
